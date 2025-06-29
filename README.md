@@ -51,7 +51,7 @@ I’m open to:
 
 ## 📫 Get in Touch
 
-- Email: shomanomar454@gmail.com  
+- Email: natekib15@gmail.com  
 - LinkedIn: [linkedin.com/in/nathan-kibatu](https://linkedin.com/in/nathan-kibatu)
 
 
